@@ -2,7 +2,6 @@
 title: "Abducido por el CNI y el CGI"
 description: "I was punctured by the CNI and the CGI because my political opinions"
 pubDate: "Sept 25 2025"
-heroImage: "/blog-placeholder-3.jpg"
 ---
 
 So yes, there is that. I was abdcuted by people in the Spanish intelligence. It was around 2023 when I was switched from a policeman aliased Leandro to Javier alias Javier Gonzarri.

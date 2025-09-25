@@ -2,7 +2,6 @@
 title: "Constante Alona hoy se forra de fascismo"
 description: "Raise crows and they will take out your eyes"
 pubDate: "Sept 14 2025"
-heroImage: "/blog-placeholder-3.jpg"
 ---
 
 Hoy es un simple Domingo convertido en insufrible por el cotorreo que se trae la

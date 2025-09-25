@@ -2,7 +2,6 @@
 title: "Terrorist attacks in Madrid were unpunished and related to ETA"
 description: "How is that Carmen Toro is not in prison?"
 pubDate: "Sept 26 2025"
-heroImage: "/blog-placeholder-3.jpg"
 ---
 
 Do you remember the headlines over the bombings in Spanish trains in Madrid like in El pozo del tio Raimundo or Atocha? They were linked to ETA

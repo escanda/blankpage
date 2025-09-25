@@ -2,7 +2,6 @@
 title: "Keeping alive"
 description: "Raise crows and they will take out your eyes"
 pubDate: "Sept 09 2025"
-heroImage: "/blog-placeholder-3.jpg"
 ---
 
 Dead within, or dead without. Those are the rulings of the famille. The famille is those people in lodge you don't see but can talk to, feel and influence.

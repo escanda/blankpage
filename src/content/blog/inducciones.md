@@ -2,7 +2,6 @@
 title: "Dead freemasonic lodges"
 description: "Dead lodges still run veins through the old europe"
 pubDate: "Sept 15 2025"
-heroImage: "/blog-placeholder-3.jpg"
 ---
 
 Did you figure out if you were going to play a game the most sensible choice

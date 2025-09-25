@@ -2,7 +2,6 @@
 title: "Constante Alona is the state ruling lodge ohail"
 description: "How the intelligence center is linked to this masonic lodge where Franco talks and smashes people yet again"
 pubDate: "Sept 15 2025"
-heroImage: "/blog-placeholder-3.jpg"
 ---
 
 
