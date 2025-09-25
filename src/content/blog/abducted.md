@@ -17,7 +17,8 @@ killed so they get to know their stance and whether they need to be killed too.
 
 So yes, in 2023 I was abducted by Javier Gonzarri and Belen or Judith aliases. They are CNI and Police officers. Their method speaks by itself: hummilating and inducing to suicide
 candidates while they take advantage of them by remembering before lessons: it is their way to recall subjects while they entertain themselves. I was even brought to Homeland Security
-and National Security of the USA while I oversaw with them conversations with personalities like Trump, Biden or Pedro Sanchez.
+and National Security of the USA while I oversaw with them conversations with personalities like Trump, Biden or Pedro Sanchez: you couldn't listen to the running voice but only the
+opponent.
 
 I even walked along the USAF and got to know in lodge the sound of extraterrestrial life: those are lovely and sound like high pitched multitonal voice. Even then, they get killed as
 soon as they reach earth for whatever reasons. In my honest opinion it is mad stuff but hey, who cares as you say in America.
@@ -50,4 +51,4 @@ political opinions.
 So this is how talent get abducted and killed in Spain freely because their opinions or their origin if they cannot join the workforce with a firegun or in politics: they get killed through induction
 by defenestration.
 
-My name is Guillermo Jose Cifuentes Achotegui and this is some part of my history.
+My name is Guillermo Cifuentes and this is some part of my history.
