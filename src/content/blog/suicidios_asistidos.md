@@ -1,6 +1,6 @@
 ---
 title: "Suicide inductors of freemasonry in Spain"
-description: "How the intelligence center is linked to this masonic lodge where>
+description: "How the intelligence center is linked to Constante Alona masonic lodge"
 pubDate: "Sept 16 2025"
 heroImage: "/blog-placeholder-3.jpg"
 ---
