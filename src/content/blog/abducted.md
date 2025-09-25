@@ -47,4 +47,7 @@ or executed. My father and my mother - my mother particularly is crying and hara
 Since I am a dissident and this country is really fascist - Francisco Franco earned goverment creating a civil war and patented defenestration as his method of dealing with alternacy or dissident
 political opinions.
 
+So this is how talent get abducted and killed in Spain freely because their opinions or their origin if they cannot join the workforce with a firegun or in politics: they get killed through induction
+by defenestration.
+
 My name is Guillermo Jose Cifuentes Achotegui and this is part of my history.
