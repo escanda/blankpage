@@ -12,8 +12,8 @@ find a list of information officers linked to the CGI by their alias and id. By 
 
 Did you know Spanish officers squak like magpies? Interesting true fact. When they want to kill you they swear for their children. Such is life in Spain: utter fascism. If you are not
 aligned towards them you get harashed and eventually killed. The defenestration process works like first being approached by some officials, and there starts the harashment.
-I cannot tell you the lots of number of people I witnessed defenestrate through induction by Spanish police officers. They even talk through lodge with their parents once killed
-so they get to know their stance and whether they need to be killed too.
+I cannot tell you the lots of number of people I witnessed defenestrate through induction by Spanish police officers. They even talk through lodge with their parents once they have
+killed so they get to know their stance and whether they need to be killed too.
 
 So yes, in 2023 I was abducted by Javier Gonzarri and Belen or Judith aliases. They are CNI and Police officers. Their method speaks by itself: hummilating and inducing to suicide
 candidates while they take advantage of them by remembering before lessons: it is their way to recall subjects while they entertain themselves. I was even brought to Homeland Security
@@ -50,4 +50,4 @@ political opinions.
 So this is how talent get abducted and killed in Spain freely because their opinions or their origin if they cannot join the workforce with a firegun or in politics: they get killed through induction
 by defenestration.
 
-My name is Guillermo Jose Cifuentes Achotegui and this is part of my history.
+My name is Guillermo Jose Cifuentes Achotegui and this is some part of my history.
