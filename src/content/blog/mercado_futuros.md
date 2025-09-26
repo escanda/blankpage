@@ -1,18 +1,20 @@
 ---
-title: "What to do when your family wants to perform a terrorist attack"
+title: "The Commodity trading of terrorism"
 description: "Sunday morning heroine is coming what can you do if not to die"
 pubDate: "Sept 26 2025"
 ---
 
 So yes, dear readers: Spain is planning a terrorist attack in its soil.
-Even my mother, Elena is favorable to a massive killing in
-Spanish soil, and it seems her opinions count. Her father was involved
-in Eibar in the Chalcha restaurant as a coadjunt of the spanish fascist
+Even my mother is favorable to a massive killing in Spanish soil,
+and it seems her opinions count. Her father was involved
+in Eibar in the restaurant her parents had as a coadjunt of the spanish fascist
 forces and the ETA terrorist band: it was where part of the band greeted
 officials and shared resources over military targets and civil attacks.
 
-Myself, because I know her and her links to the spanish secret service - I am being threatened of dead by the spanish police, and even contractors, from time to time; for the time being I couldn't be violently
-executed but I suffered from induction although I did not follow thus my
+Myself, because I know her and her links to the spanish secret service -
+I am being threatened of dead by the spanish police, and even contractors,
+from time to time; for the time being I couldn't be violently
+executed but I suffered from induction although I did not follow thus their
 words.
 
 Like the Alvia were 172 died in a tragedy - wait juas - no: it was not a
