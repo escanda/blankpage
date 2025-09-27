@@ -1,5 +1,5 @@
 ---
-title: "Terrorist attacks in Madrid were unpunished and related to ETA"
+title: "Terrorist attacks in Madrid were unpunished"
 description: "How is that Carmen Toro is not in prison?"
 pubDate: "Sept 26 2025"
 ---
