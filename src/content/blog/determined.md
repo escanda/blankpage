@@ -7,18 +7,17 @@ pubDate: "Sept 27 2025"
 After being in Alona lodge with the king and Francisco Franco obliterating the fact that I am not a fascist nor a killer, but they are,
 I am subsummed into depression and without money to travel abroad from Spain and leave this fucking shithole.
 
-You hear right. Police in Spain gathers people into lodges so they can learn from them they say but they actually fagotize and kill them eventually through lodge or in person with a firegun.
+You hear right. Police in Spain gathers people into lodges so they can learn from them they say but they actually fagotize and kill them, or use them in bombings or runovers like the 17A - eventually through lodge or in person with a firegun.
 
-That is why police here in Spain harrash, torture and kill political dissidents without fuss. They even kill tourists under other countries demand, so be wary to come to Spain if you were threatened in your country since you could wind up dead here in hands of a police officer. Like those choked in the streets by police officers, as in Madrid recently Madrid: you can search up in ElMundo or Google by the keywords 'Spain asphyxia police' and you will find lots of results of people suffocated by agents with no consequences.
+That is why police here in Spain harrash, torture and kill political dissidents without fuss. They even kill tourists under other countries demand, so be wary to come to Spain if you were threatened in your country since you could wind up dead here in hands of a police officer. Like those choked in the streets by police officers, as in Madrid recently: you can search up in ElMundo or Google by the keywords 'Spain asphyxia police' and you will find lots of results of people suffocated by agents with no consequences.
 
 They are usually charged - if they are charged at all - with 2 years tops of prison, and since they usually have their criminal record lapsed because time, they won't even get to prison.
 
-There is a fuckton of war crimes commited here in Spain but they are not set in the international court because the state reserves the right of hiding those acts under excuses such as false crimes, they call them offenders indepently of they being that or not.
-
+There is a fuckton of war crimes commited here in Spain but they are not set in the international court because the state reserves the right of hiding those acts under excuses such as false crimes, ill people, or badlings so they can call them offenders indepently of they were offenders or not.
 
 It is more and more common hear in Spain of policeman killing bystanders of suffocation, runover or shoots by police. Heck, shoots are celebrated nationally in the news media so people know the truth about those who think they protect them but it is not like that, they were either inmigrants armed with a stick, and they are shooted multiple times to kill them.
 
-I even remember the Tarajal incident were Guardia Civil killed 17 people who only were swimming to cross the border to Spain from Morocco. They were just assessinated.
+I remember the Tarajal incident were Guardia Civil killed 17 people who only were swimming to cross the border to Spain from Morocco. They were just assessinated.
 
 Even then, the police asks the population to partake on propaganda demonstrations, and they get kicked, detained or killed; well, they were summoned by the information commissary. Recently, because Palestine. It might be a noble cause but the Spanish goverment sends weapons and explosives to Israel and some public companies even perform duty in the palestinian occupied ghettos so they make up buildings and other infraestructure. Not even the president thinks Palestina should be free. Those concentrations are summoed because they are of goverment interest to kill assistants and form new political movements in which to allienate those who play the game.
 
