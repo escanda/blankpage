@@ -21,8 +21,7 @@ by a different team of professionals: they left no traces and the whole story me
 Of interest in the court declaration of them are how they lie "online" and how the judge is partial to the terrorists under the excuse of them only carrying
 out the explosives travelling and custody, both by Trashorras and Jamal; but not planting them: there were no arrests at the time of the bombings.
 
-Instead, the actual bomb exploders were executed so they coudln't speak how they obtained them in a Leganes flat: GEO planted some bombs and in the meanwhile
-they were tortured in lodge.
+Instead, the actual bomb exploders were executed so they coudln't speak how they obtained them in a Leganes flat: GEO planted some bombs and in the meanwhile they were tortured in lodge.
 
 Interersting to me is how they could, Trashorras in particular - he recognizes he is schizoprenic - be trained and at the same time meet with CGI and Guardia Civil
 with no consequences under the pretext of being drug traffickers: they were given hashisch by El Chino related to the Tunda Tunda of Gijon: Ivan and Amparo
@@ -31,7 +30,6 @@ the owners being linked closely related to officers.
 Another interesting fact is that El Chino - by El Mundo at the time - was stopped by Guardia Civil de Trafico in a highway with no documentation and more explosives
 but was let go the connection he had and the charge he was given.
 
-I am really impressed - after being torured myself - what kind of pscyhodrama these teams were given so they could transport and store explosives; and later on,
-accussed of exploding those bombs.
+I am really impressed - after being torured myself - what kind of pscyhodrama these teams were given so they could transport and store explosives; and later on, accussed of exploding those bombs.
 
 An amateur could think the news were true, but even doumbers can realize from the justice court footage linked above that instead this was State terrorism.

@@ -50,4 +50,4 @@ political opinions.
 So this is how talent get abducted and killed in Spain freely because their opinions or their origin if they cannot join the workforce with a firegun or in politics: they get killed through induction
 by defenestration.
 
-My name is Guillermo Cifuentes and this is some part of my history.
+My name is William C. and this is some part of my history.
