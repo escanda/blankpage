@@ -7,7 +7,7 @@ pubDate: "Sept 25 2025"
 So yes, there is that. I was abdcuted by people in the Spanish intelligence. It was around 2023 when I was switched from a policeman aliased Leandro to Javier alias Javier Gonzarri.
 
 I even received calls from local numbers linked to the information commissary aliased CGI here in Spain such as 985990676. By the alias of Commtel. If you search in Google you can even
-find a list of information officers linked to the CGI by their alias and id. By that phone number the list was unlinked already but it was called "Policia S".
+find a list of information officers linked to the CGI by their alias and id. By that phone number the list was unlinked already but it was called "Policia S". They use these hidden methods so they don't have resposiblity over operatives.
 
 Did you know Spanish officers squak like magpies? Interesting true fact. When they want to kill you they swear for their children. Such is life in Spain: utter fascism. If you are not
 aligned towards them you get harashed and eventually killed. The defenestration process works like first being approached by some officials, and there starts the harashment.

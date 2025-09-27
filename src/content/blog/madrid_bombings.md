@@ -9,14 +9,16 @@ and the security services under the umbrella of both Guardia Civil and Policia N
 and another mine. The operatives under Trashorras and Carmen Toro - she even earned 1 million euros because the trial and was not even incarcerated -
 were trained into thinking they were an ETA command but in reality they only were some madlings from the very same mines they robbed with policemen aid.
 
+This point is not stressed enough. They were not a political movement. They were just used through lodge by means of scam. The most common argument being you are being loved but I love you as you are and come; but they tell you what to do.
+
 So yes,Trashorras and his team were the ones who delivered almost 60KG of C2 explosives to Madrid by Alsa bus to the muslim operatives junctioned by the
 information service, or CNI; and these muslim operatives captained by Yamal. After gathering with them in a McDonalds. It was not even a McDonalds as there
 are no recordings of this meeting. But they liaed in justice court as they were told, and the lie was accepted by Bermudez in the Audiencia Nacional.
 
-The one who traveled with them in a bag was the protector and lover of Carmen Toro - now mother and divorced from Emilio Suarez Trashorras. He brought
+The one who traveled with them in a bag was the protector and lover of Carmen Toro - now mother but divorced from Emilio Suarez Trashorras. He brought
 the bag to Jamal Zougan's squad.you watch all them declare to court [here](https://www.youtube.com/watch?v=p15tIioeP8Q&list=PL086E66B8B353FA41). Jamal's
 people then moved the explosives into their homes and zulos; but _the actual detonation does not seem related_, it seems more likely they were carried out
-by a different team of professionals: they left no traces and the whole story medallion goes to both Trashorras and Zougan teams.
+by a different team of professionals: who were blowed up in two explosions, one by them and the other by GEO of police so they could die and don't speak freely.
 
 Of interest in the court declaration of them are how they lie "online" and how the judge is partial to the terrorists under the excuse of them only carrying
 out the explosives travelling and custody, both by Trashorras and Jamal; but not planting them: there were no arrests at the time of the bombings.
