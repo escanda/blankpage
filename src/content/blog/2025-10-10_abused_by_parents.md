@@ -16,7 +16,10 @@ Lo hizo violentamente, hasta quiza el orgasmo, ese detalle no lo recuerdo.
 Ademas, en otras ocasiones, me tuvieron en su cama. Recuerdo una vez que mi padre me dijo que ahora lo hiciera yo, como
 un juego sexual involucrando mi aparato genital y siendo tocado con sus extremidades. Cuando yo era un prepubescente.
 
-Tambien mi abuelo por parte paterna me agredio por tocamientos y me mee encima. Era una mierda de sujeto igual que su puto hijo.
+Tambien mi abuelo por parte paterna me agredio por tocamientos al llevarme a la
+escuela y me mee encima. Era una mierda de sujeto igual que su puto hijo. Se
+llamaba Jose Ramon Cifuentes Fernandez, y su mujer Maria Concepcion Fernandez
+Fernandez. Dos taraditos.
 
 Esto ha sido denunciado en 2015. En la comisaria central de Policia Nacional en Gijon. Fui expulsado por cuatro agentes con
 amenazas fisicas sin dejarme ratificar la denuncia.
@@ -74,3 +77,5 @@ Si fueran unos don nadies de ciudad lineal, estarian en todos los medios impreso
 de lesiones graves por sus multiples intentos de atropello; o incluso de homicidio, que podria llegar a considerarse dada la reiteracion de temas.
 
 NO PUEDO ESCAPAR DE LA PSICOPATIA DE ESTOS DOS INDIVIDUOS.
+
+AYUDA A: user@pianoagency.org
