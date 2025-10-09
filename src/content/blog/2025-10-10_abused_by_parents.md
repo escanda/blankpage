@@ -72,4 +72,4 @@ conmigo.
 Si fueran unos don nadies de ciudad lineal, estarian en todos los medios impresos como agresores sexuales ademas de por agresores sexuales, tambien por intento
 de lesiones graves por sus multiples intentos de atropello.
 
-NO PUEDO ESCAPAR DE LA PSICOPATIA DE ESTOS DOS INDIVIDUOS: RUEGO SU EJECUCION.
+NO PUEDO ESCAPAR DE LA PSICOPATIA DE ESTOS DOS INDIVIDUOS.
