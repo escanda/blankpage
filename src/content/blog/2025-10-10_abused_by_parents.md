@@ -54,7 +54,8 @@ intento atropellarme y tuve que llamar a la policia nacional: se persono un vehi
 tiene un permiso de armas que no acaban de retirarle, y es un sujeto peligroso. Ademas carece de permiso para la 9mm que guarda.
 
 Mi madre me coacciono junto a mi padre para retirar la denuncia por el intento de atropello despues amenazandome con incapacitarme legalmente por mi
-situacion de filiacion psiquiatrica. Se ponen muy agresivos en consulta con los psiquiatras para que me cieguen de pastillas a fin de anularme.
+situacion de filiacion psiquiatrica. Se ponen muy agresivos en consulta con los psiquiatras para que me cieguen de pastillas a fin de anular mi
+capacidad volitiva y mi capacidad de generar ingresos para escapar de estos sujetos.
 
 Esto es una clara violacion de mis derechos basicos o fundamentales.
 
