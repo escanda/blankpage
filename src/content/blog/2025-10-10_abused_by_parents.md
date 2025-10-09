@@ -69,7 +69,7 @@ hecho delictivo por su parte: una psicopata natural.
 El progenitor es un sujeto violento tarado que no dejaria cerca de mi pareja o hijos por miedo a que les agreda o les homicide: como intentase anteriormente
 conmigo.
 
-Si fueran unos don nadies de ciudad lineal, estarian en todos los medios impresos como agresores sexuales ademas de por intento de lesiones graves
-por sus multiples intentos de atropello.
+Si fueran unos don nadies de ciudad lineal, estarian en todos los medios impresos como agresores sexuales ademas de por agresores sexuales, tambien por intento
+de lesiones graves por sus multiples intentos de atropello.
 
 NO PUEDO ESCAPAR DE LA PSICOPATIA DE ESTOS DOS INDIVIDUOS: RUEGO SU EJECUCION.
