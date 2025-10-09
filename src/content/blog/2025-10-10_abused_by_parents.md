@@ -4,7 +4,7 @@ description: "About being sexually abused by your parents in Spain"
 pubDate: "2025-11-11"
 ---
 
-Mi nombre es Guillermo Cifuentes Achotegui, mi DNI es 53554770Y.
+Mi nombre es Guillermo C.
 
 Hijo de Jose Luis Manuel Cifuentes Fernandez 10792960A y Elena Achotegui Assailly 15355136Z.
 
