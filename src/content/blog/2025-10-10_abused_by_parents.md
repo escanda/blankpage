@@ -22,6 +22,30 @@ el delito.
 
 Estos dos pedofilos se han ido sin pagar la factura de tocarme cuando era niño.
 
-Mi madre ha llegado a aseverar por telefono - sin poder grabarle - que mi padre me tocaba el pene por jugar conmigo. Eso estaba claro.
+Mi madre ha llegado a aseverar por telefono - sin poder grabarle - que mi padre me tocaba el pene por jugar conmigo. Eso estaba claro. JUSTICIA
 
-JUSTICIA
+Ademas de esto pueden leer el resto de posts y entenderan algo mas.
+
+Ahora, ademas, de no haber podido denunciar el hecho de haber sido abusado sexualmente; fui condenado por un delito leve durante - supuestamente -
+un brote psicotico, aunque fue pagado en su totalidad, lo cierto es que me queda muy mala conciencia de ese suceso, ademas de la insatisfaccion de
+no poder llevar a prision a estos exhibidores, y mas cosas.
+
+En todo caso me consta en mi carpeta judicial que la denuncia estar esta guardada por lo que se podrian retomar acciones.
+
+Lo unico que vivo con miedo de lo siguiente que me hagan mis padres; o los policias por el mero hecho haberles denunciado.
+
+Ultimamente recibo por logia una miriada de amenazas de muerte e insultos. A ver cuando me dan matarile los psicopatas estos. Segun ellos
+pronto. Espero que no les dejen, porque son gentuza, ni siquiera son gente de familia, desde los 12 me han incluso intentado atropellar
+en su puto vehiculo.
+
+No solo me han intentado atropellar, una vez mis dos padres en el vehiculo de mi madre con matricula 0671GJS; si no que otra vez, mi padre
+intento atropellarme y tuve que llamar a la policia nacional: se persono un vehiculo con 4 agentes armados porque saben que mi padre
+tiene un permiso de armas que no acaban de retirarle.
+
+Mi madre me coacciono junto a mi padre para retirar la denuncia despues amenazandome con incapacitarme legalmente por mi situacion de
+filiacion psiquiatrica. Se ponen muy agresivos en consulta con los psiquiatras para que me cieguen de pastillas a fin de anularme mentalmente.
+
+Esto es una clara violacion de mis derechos basicos o fundamentales.
+
+Solo pido que vayan a la carcel como el pedofilo de Ciudad Lineal; los dos. Llego a la conclusion que no mi silencio no merece la pena para estas
+dos personas por su naturaleza violenta, cruel y pedofila.
