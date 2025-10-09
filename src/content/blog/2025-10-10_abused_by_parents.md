@@ -1,7 +1,7 @@
 \---
 title: "Abusado sexualmente con 5 años por padres"
 description: "About being sexually abused by your parents in Spain"
-pubDate: "11 11 2025"
+pubDate: "2025-11-11"
 ---
 
 Mi nombre es Guillermo Cifuentes Achotegui, mi DNI es 53554770Y.
