@@ -60,7 +60,7 @@ Esto es una clara violacion de mis derechos basicos o fundamentales.
 
 Solo pido que vayan a la carcel como el pedofilo de Ciudad Lineal; los dos.
 
-Llego a la conclusion que no mi silencio no merece la pena para estas dos personas por su naturaleza violenta, cruel y pedofila.
+Llego a la conclusion que mi silencio no merece la pena para estas dos personas por su naturaleza violenta, cruel y pedofila.
 La progenitora es una maltratadora psicologia de primer orden. Nunca deja hablar, siempre me cuelga el telefono, me hace entrar en deudas,
 como una hipoteca, que no puedo pagar, para hundirme la posibilidad de escapar de ella.
 
