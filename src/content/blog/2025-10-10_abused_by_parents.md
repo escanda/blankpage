@@ -79,3 +79,6 @@ de lesiones graves por sus multiples intentos de atropello; o incluso de homicid
 NO PUEDO ESCAPAR DE LA PSICOPATIA DE ESTOS DOS INDIVIDUOS.
 
 AYUDA A: gcifuentes@escanda.cc
+
+EL CNI Y LA POLICIA ESTAN DE ACUERDO EN ASESINARME ANTES QUE A ELLA QUE
+TIENE 70 Y YO SOLO 37: CON LA GRAVEDAD DE SUS PUTOS DELITOS.
