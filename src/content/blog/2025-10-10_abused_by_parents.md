@@ -62,14 +62,15 @@ Esto es una clara violacion de mis derechos basicos o fundamentales.
 Solo pido que vayan a la carcel como el pedofilo de Ciudad Lineal; los dos.
 
 Llego a la conclusion que mi silencio no merece la pena para estas dos personas por su naturaleza violenta, cruel y pedofila.
+
 La progenitora es una maltratadora psicologica de primer orden. Nunca deja hablar, siempre me cuelga el telefono, me hace entrar en deudas,
-como una hipoteca, que no puedo pagar, para hundirme la posibilidad de escapar de ella. Ademas trata de silenciar cualquier acusacion fundada en cualquier
-hecho delictivo por su parte: una psicopata natural.
+como una hipoteca, que no puedo pagar, para hundirme la posibilidad de escapar de ella; o me veja con insultos a mi discapacidad. Ademas trata de
+silenciar cualquier acusacion fundada en cualquier hecho delictivo por su parte: es una psicopata natural.
 
 El progenitor es un sujeto violento tarado que no dejaria cerca de mi pareja o hijos por miedo a que les agreda o les homicide: como intentase anteriormente
 conmigo.
 
 Si fueran unos don nadies de ciudad lineal, estarian en todos los medios impresos como agresores sexuales ademas de por agresores sexuales, tambien por intento
-de lesiones graves por sus multiples intentos de atropello.
+de lesiones graves por sus multiples intentos de atropello; o incluso de homicidio, que podria llegar a considerarse dada la reiteracion de temas.
 
 NO PUEDO ESCAPAR DE LA PSICOPATIA DE ESTOS DOS INDIVIDUOS.
