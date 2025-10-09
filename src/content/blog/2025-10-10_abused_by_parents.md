@@ -1,4 +1,4 @@
----
+\---
 title: "Abusado sexualmente con 5 años por padres"
 description: "About being sexually abused by your parents in Spain"
 pubDate: "Oct 11 2025"
@@ -78,4 +78,4 @@ de lesiones graves por sus multiples intentos de atropello; o incluso de homicid
 
 NO PUEDO ESCAPAR DE LA PSICOPATIA DE ESTOS DOS INDIVIDUOS.
 
-AYUDA A: user@pianoagency.org
+AYUDA A: gcifuentes@escanda.cc
