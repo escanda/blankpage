@@ -1,7 +1,7 @@
 \---
 title: "Abusado sexualmente con 5 años por padres"
 description: "About being sexually abused by your parents in Spain"
-pubDate: "October 09 2025"
+pubDate: "Oct 10 2025"
 ---
 
 Mi nombre es Guillermo C.
